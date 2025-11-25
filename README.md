@@ -1,2 +1,0 @@
-# Insurtech-Market
-Market Research
